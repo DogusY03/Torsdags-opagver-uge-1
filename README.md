@@ -1,2 +1,2 @@
-# Torsdags opagver uge 1
- Torsdags opgaver
+Dogus Yildirim
+cph-dy56@cphbusiness.dk
